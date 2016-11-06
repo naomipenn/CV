@@ -7,7 +7,7 @@ Former publisher and journalist with a drive for creative campaigning. Looking t
 - Thrives under pressure and in unexpected situations
 - Strong interpersonal skills, able to get on with a wide variety of personalities
 - Diplomatic and sensitive to cultural differences, due to personal history and professional experience
-- Discreet and trustworthy: worked in several sensitive environments (Amnesty International, Lambeth Palace) and conducted - high-profile interviews with off-the-record asides
+- Discreet and trustworthy: worked in several sensitive environments (Amnesty International, Lambeth Palace) and conducted high-profile interviews with off-the-record asides
 - Solution-oriented, willing to take creative approach when required
 
 ## Education
